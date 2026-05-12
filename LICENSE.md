@@ -1,4 +1,4 @@
-# 
+# custom nft sniper bot | auto-sell + wash-trading-execution offers the most advanced nft sniper bot, with auto-sell and wash-trading-execution. Ideal for professional NFT traders
 
 
 
